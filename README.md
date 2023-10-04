@@ -1,1 +1,1 @@
-suleontop makan jembod
+sule makan babi
