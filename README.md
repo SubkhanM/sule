@@ -1,1 +1,0 @@
-suleontop makan jembod
